@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil do Caua 😁
+## Bem-vindo(a) ao perfil do Cauã 😁
 
  <div>
    <a href="https://github.com/Cmann22">
